@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VAMI070303HVZZTSA8
+VAMI070303HVZZTSA8
